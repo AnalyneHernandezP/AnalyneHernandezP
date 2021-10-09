@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnalyneHernandezP
-- 👀 I’m interested in leer 
+- 👀 I’m interested in aprender mucho 
 - 🌱 I’m currently learning ingeniería Biomédica 
 - 💞️ I’m looking to collaborate on lo que sea necesario
 - 📫 How to reach mí, mi correo es analynehernandezprz@micorreo.upp.edu.mx
